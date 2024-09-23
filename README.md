@@ -1,9 +1,8 @@
 Meu nome é Evellyn Lorrane
 
-Estou estudando na Alura
-Estou me desenvolvendo na linguagem JavaScript
-Utilizo esse espaço para minha organização e compartilhamento dos meu projetos desenvolvidos
+-Estou estudando na Alura
+-Estou me desenvolvendo na linguagem JavaScript
+-Utilizo esse espaço para minha organização e compartilhamento dos meu projetos desenvolvidos
 💋❤️
 
-!![image](https://github.com/user-attachments/assets/b9c558f2-7979-46da-ac07-ff2b180d814e)
-[](link)
+![https://www.google.com/url?sa=i&url=https%3A%2F%2Faminoapps.com%2Fc%2Ffofuratotalfk%2Fpage%2Fblog%2Fmais-um-gif-fofinho%2Flx43_2LuQugXkEd7XkbNGldYwWgvEJx6lj&psig=AOvVaw2AE4Kt0rv78yv7fnGz_p3F&ust=1727190792370000&source=images&cd=vfe&opi=89978449&ved=0CBMQjRxqFwoTCPCu26Gt2YgDFQAAAAAdAAAAABAE](link)
