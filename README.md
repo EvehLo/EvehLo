@@ -5,5 +5,4 @@ Meu nome é Evellyn Lorrane
 -Utilizo esse espaço para minha organização e compartilhamento dos meu projetos desenvolvidos
 💋❤️
 
-![![image](https://github.com/user-attachments/assets/b9baf629-22e3-4e6e-96b0-bbbaf1c97921)
-](link)
+![](https://media1.tenor.com/m/BgPC_agRjAIAAAAC/blushing-surprised.gif)
